@@ -1,4 +1,4 @@
-# Dimple-S1163-Dimple-S1163
+
 
 # 👋 Hi, I'm Dimple S.
 
